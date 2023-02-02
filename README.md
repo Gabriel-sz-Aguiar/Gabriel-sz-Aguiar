@@ -1,4 +1,4 @@
-### Saldações! Me chamo Gabriel Aguiar!
+### Saudações! Me chamo Gabriel Aguiar!
 
 - 🔭 Hoje trabalho como recepcionista
 - 🌱 Estudando Front End e suas Tecnologias
